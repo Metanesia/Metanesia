@@ -1,3 +1,4 @@
+![avatar_M15_C1_A4_P4 (1)](https://github.com/Metanesia/Metanesia/assets/169147089/decc5c96-5043-496e-a4a9-057c8581fa13)
 - 👋 Hi, I’m AIIOTML just call @Metanesia
 - 👀 I’m interested in to great Citizen who want living in Lamd
 - 🌱 I’m currently Ready To Accept Data and College my Citizen
